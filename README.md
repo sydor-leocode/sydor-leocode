@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Jakub Sydor
+- Main account [@Harasz](https://github.com/Harasz)
